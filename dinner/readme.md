@@ -1,8 +1,8 @@
 # Replace with recipe name
 
-## Servings: 
+## Servings: Serves 2
 
-## Time to prepare: 
+## Time to prepare: 45 minutes ⏰ 
 
 ## Ingredients:
 
