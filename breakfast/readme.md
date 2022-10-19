@@ -1,6 +1,6 @@
-# Replace with recipe name
+# Banana Pancakes 🥞 
 
-## Servings: 
+## Servings: 2 People
 
 ## Time to prepare: 
 
