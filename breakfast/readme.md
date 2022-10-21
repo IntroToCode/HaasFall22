@@ -1,9 +1,9 @@
-# Pesto Pasta with Chicken
+# Pesto Pasta with Chicken :chicken:
 
-## Servings: 
-2~3 people
+## :spaghetti: Servings: 
+2~4 people
 
-## Time to prepare: 
+## :alarm_clock: Time to prepare: 
 About 60 minutes
 
 ## Ingredients:
