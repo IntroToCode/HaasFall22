@@ -7,7 +7,7 @@
 About 60 minutes
 
 ## Ingredients:
-Package bow tie pasta, 1 teaspoon olive oil, 2 cloves garlic, minced, 2 skinless, boneless chicken breasts, cut into bite-sized pieces, 1 pinch crushed red pepper flakes, ½ cup pesto sauce, ⅓ cup oil-packed sun-dried tomatoes, drained and cut into strips, Parmesan Cheese
+Package bow tie pasta, 2 teaspoon olive oil, 2 cloves garlic, minced, 2 skinless, boneless chicken breasts, cut into bite-sized pieces, 1 pinch crushed red pepper flakes, ½ cup pesto sauce, ⅓ cup oil-packed sun-dried tomatoes, drained and cut into strips, Parmesan Cheese
 
 
 ## Equipment needed:
