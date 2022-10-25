@@ -36,7 +36,10 @@
 ## Equipment needed:
 - Refrigerator
 - Oven
-- Pan and tools
+- Frying Pan
+- Large Bowl
+- Sheet Tray
+- Parchment
 
 ## Steps for preparation:
 1) In a large bowl, mix ground beef, ground pork, onion, garlic, bread crumbs, eggs, milk, salt, pepper and one tablespoon of oil. Mix just enough to combine and try not to overmix.
