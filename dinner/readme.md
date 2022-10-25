@@ -7,7 +7,13 @@
 2~4 hours
 
 ## Ingredients:
-Shin beef, onions, dried oregano, white pepper, stock powder, bay leaves, salt
+- [x] Shin beef
+- [x] Onions
+- [x] Dried oregano
+- [x] White pepper
+- [x] Stock powder
+- [x] Bay leaves
+- [x] Salt
 
 
 ## Equipment needed:
