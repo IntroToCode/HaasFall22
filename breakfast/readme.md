@@ -1,5 +1,5 @@
-# Replace with recipe name
-Smoky Bacon Cheddar Breakfast Hash
+# Smoky Bacon Cheddar Breakfast Hash
+
 ## Servings: 
 6
 ## Time to prepare: 
