@@ -7,7 +7,7 @@
 ## Ingredients: eggs, milk, butter, salt, and pepper
 
 
-## Equipment needed:
+## Equipment needed: mixing bowl, whisk (fork will do), non-stick pan, spatula 
 
 
 ## Steps for preparation:
