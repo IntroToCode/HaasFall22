@@ -21,6 +21,7 @@
 - Stirrer/Spoon
 - Knife
 - Cutting Board
+- Measuring Cup
 
 
 ## Steps for preparation:
