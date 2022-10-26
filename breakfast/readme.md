@@ -7,7 +7,7 @@
 About 60 minutes
 
 ## Ingredients:
-- 1 Package bow tie pasta
+- 1 Package bow tie pasta (or any kind works)
 - 2 teaspoon olive oil
 - 2 cloves garlic, minced
 - 2 skinless, boneless chicken breasts, cut into bite-sized pieces
