@@ -21,6 +21,8 @@ Smoky Bacon Cheddar Breakfast Hash
 6 slices crusty bread, toasted (optional)
 ## Equipment needed:
 Cast-iron skillet
+Rubber spatula
+Cooking knife
 ## Steps for preparation:
 - Heat a large nonstick or cast-iron skillet over medium-high heat. Add the bacon and cook until almost crispy and the fat has rendered, about 10 minutes. Using a slotted spoon, transfer the bacon to a paper towel-lined plate, reserving the fat in the pan. Discard all but ¼ cup of the bacon fat.
 - Add the potatoes to the bacon fat in a single layer and cook until golden brown on mostly tender, 10-12 minutes. Add the onions and bell peppers and cook, about 5 minutes more.
