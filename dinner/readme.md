@@ -23,6 +23,8 @@ Italian parsley, for serving
 
 ## Equipment needed:
 Pan
+Tongs
+Kitchen Knife
 Baking sheet
 Mixing bowl
 Parchment sheets
