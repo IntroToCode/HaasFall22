@@ -23,6 +23,8 @@ Italian parsley, for serving
 
 ## Equipment needed:
 Pan
+Tongs
+Kitchen Knife
 
 ## Steps for preparation:
 1. Preheat the oven 375°F with a rack in the center position. Cut parchment paper into four 15 x 10-inch ovals. Fold in half crosswise.
