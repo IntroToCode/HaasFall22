@@ -14,7 +14,7 @@ About 60 minutes
 - 1 pinch crushed red pepper flakes
 - ½ cup pesto sauce
 - ⅓ cup oil-packed sun-dried tomatoes, drained and cut into strips
-- Parmesan Cheese, to taste
+- Parmesan or Grana Padano Cheese, to taste
 
 
 ## Equipment needed:
