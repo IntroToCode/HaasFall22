@@ -22,7 +22,7 @@ About 60 minutes
 - Drainer
 - Knife
 - Cutting Board
-
+- Skillet
 
 ## Steps for preparation:
 1.	Bring a large pot of lightly salted water to a boil. Add pasta and cook until al dente, 8 to 10 minutes; drain
