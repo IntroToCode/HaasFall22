@@ -1,13 +1,13 @@
-# Replace with recipe name
+# Scrambled Eggs
 
-## Servings: 
+## Servings: 6 servings
 
-## Time to prepare: 
+## Time to prepare: 10~15 minutes
 
-## Ingredients:
+## Ingredients: eggs, milk, butter, salt, and pepper
 
 
-## Equipment needed:
+## Equipment needed: mixing bowl, whisk (fork will do), non-stick pan, spatula 
 
 
 ## Steps for preparation:
