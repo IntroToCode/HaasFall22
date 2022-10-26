@@ -5,20 +5,20 @@
 ## Time to prepare: 
 55 min
 ## Ingredients:
-8 slices thick-cut bacon, diced
-2 tablespoons olive or vegetable oil, if needed
-2 russet potatoes (about 1½ pounds), cut into ½ -inch pieces
-½ yellow onion, diced
-1 l arge red bell pepper, diced
-1 cup heavy cream
-1 tablespoon Worcestershire sauce
-1/2 teaspoon smoked paprika
-1 teaspoon sea salt
-1/4 teaspoon freshly cracked black pepper
-1 cup shredded cheddar cheese
-¼ cup green onions, chopped
-6 eggs, cooked to your liking
-6 slices crusty bread, toasted (optional)
+- 8 slices thick-cut bacon, diced
+- 2 tablespoons olive or vegetable oil, if needed
+- 2 russet potatoes (about 1½ pounds), cut into ½ -inch pieces
+- ½ yellow onion, diced
+- 1 l arge red bell pepper, diced
+- 1 cup heavy cream
+- 1 tablespoon Worcestershire sauce
+- 1/2 teaspoon smoked paprika
+- 1 teaspoon sea salt
+- 1/4 teaspoon freshly cracked black pepper
+- 1 cup shredded cheddar cheese
+- ¼ cup green onions, chopped
+- 6 eggs, cooked to your liking
+- 6 slices crusty bread, toasted (optional)
 ## Equipment needed:
 - Cast-iron skillet
 - Rubber spatula
