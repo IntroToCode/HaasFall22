@@ -4,7 +4,7 @@
 4 people
 
 ## Time to prepare: 
-2~4 hours
+At least 4 hours
 
 ## Ingredients:
 - [x] Shin beef
