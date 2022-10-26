@@ -33,5 +33,6 @@ Cooking knife
 ### Notes:
 Calories:499
 
+![image](https://user-images.githubusercontent.com/114119481/197924197-8d80fc93-0752-4380-8934-39b5effe041c.png)
 
 ### Codemates #
