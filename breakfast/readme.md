@@ -25,9 +25,10 @@ About 60 minutes
 - Skillet
 
 ## Steps for preparation:
-1.	Bring a large pot of lightly salted water to a boil. Add pasta and cook until al dente, 8 to 10 minutes; drain
-2.	Heat oil in a large skillet over medium heat. Sauté garlic until tender, then stir in chicken and season with red pepper flakes. Cook until chicken is golden and cooked through
-3.	Combine pasta, chicken, pesto, and sun-dried tomatoes in a large bowl; toss to coat evenly
+1.	Bring a large pot of lightly salted water to a boil. 
+2.  Add pasta and cook until al dente, 8 to 10 minutes; drain
+3.	Heat oil in a large skillet over medium heat. Sauté garlic until tender, then stir in chicken and season with red pepper flakes. Cook until chicken is golden and cooked through
+4.	Combine pasta, chicken, pesto, and sun-dried tomatoes in a large bowl; toss to coat evenly
 
 
 
