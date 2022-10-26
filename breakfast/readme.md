@@ -4,7 +4,7 @@
 
 ## Time to prepare: 
 
-## Ingredients:
+## Ingredients: eggs, milk, butter, salt, and pepper
 
 
 ## Equipment needed:
