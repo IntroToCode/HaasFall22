@@ -14,6 +14,12 @@
 
 ## Steps for preparation:
 
+Crack eggs into bowl
+Whisk eggs until completely mixed
+Heat pan and melt 1tsp of butter
+Pour in egg mixture
+Stir and cook over medium heat until desired consistency is achieved
+Salt and pepper to taste
 
 
 ### Notes:
