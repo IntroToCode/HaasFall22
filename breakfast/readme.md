@@ -2,7 +2,7 @@
 
 <img src="https://cdn.loveandlemons.com/wp-content/uploads/2021/05/scrambled-eggs-500x375.jpg">
 
-## Servings: 6 servings
+## <strong>Servings:</strong> 6 servings
 
 ## Time to prepare: 10~15 minutes
 
